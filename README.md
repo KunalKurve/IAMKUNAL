@@ -1,6 +1,6 @@
 # IAMOSHMAN
 
-<h1 align="center">Hi 👋, I'm Oshman alias for Osheen Kunal and Manasi's GitHub account</h1>
+<h1 align="center">Hi 👋, I'm Oshman alias for Osheen, Kunal and Manasi's GitHub account</h1>
 
 
 
