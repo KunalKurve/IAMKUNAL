@@ -7,7 +7,7 @@
   
       
 
-                                   📫 Contact me at masterkunal095@gmail.com
+      📫 Contact me at masterkunal095@gmail.com
 
       
 
